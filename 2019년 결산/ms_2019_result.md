@@ -24,7 +24,7 @@
 
 
 
-<img src="D:\viral_git\ms_ona2019.png" alt="엠즈 베스트5 이미지" title="엠즈 베스트5" style="zoom:70%;" /> 
+<img src="D:\viral_git\2019년 결산\ms_ona2019.png" alt="엠즈 베스트5 이미지" title="엠즈 베스트5" style="zoom:70%;" /> 
 
 *엠즈 PB 상품 순위가 5위임에도 가장 크게 상단에 놓는 귀여운짓을  매년 하고있습니다.*
 
@@ -34,7 +34,7 @@
 
 #### 1위. 텐가 딥 스로트 컵 [보기](https://msdepart.com/shop/item.php?it_id=1546268459&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content) ####
 
-<img src="D:\viral_git\thumb-1US_1_600x600.jpg" alt="딥스로트 이미지" title="텐가 딥 스로트 컵" style="zoom:67%;"/> 
+<img src="D:\viral_git\2019년 결산\thumb-1US_1_600x600.jpg" alt="딥스로트 이미지" title="텐가 딥 스로트 컵" style="zoom:67%;"/> 
 
 길게 말할 필요가 없는 제품입니다. 텐가하면 떠오르는 대표상품 인데다가 가격도 저렴하니 항상 판매순위에서 빠지지 않는 제품이죠. **사용시 느낌은 '입으로 빨아주는' 자극과 흡사합니다.** 업계식으로 '진공감' 이니 '흡입자극'이니 하는 표현이 바로 이 입으로 빠는 느낌을 말합니다. **이 제품의 그 쪽쪽 빨아주는 듯한 흡입자극은 훨씬 고가의 상위제품과 비교해도 전혀 달리지 않습니다. 다만, 1회용 제품이니 가성비가 좋다고는 하기 어렵죠. **내부 설계도 딱 1회용에 맞춰서 제작되었고, 위생, 윤리, 법도상 여러번 쓰겠다고 주접을 안떠는게 좋습니다. 
 
@@ -44,7 +44,7 @@
 
 
 
-<img src="D:\viral_git\10th.jpg" alt="텐가 딥 스로트 컵 10주년 기념 에디션" style="zoom:67%;" /> 
+<img src="D:\viral_git\2019년 결산\10th.jpg" alt="텐가 딥 스로트 컵 10주년 기념 에디션" style="zoom:67%;" /> 
 
 *한국 진출 3주년 에디션.. __사자존평행배__ 기억하겠습니다*
 
@@ -52,7 +52,7 @@
 
 #### 2위. 세븐틴 보르도 [보기](https://msdepart.com/shop/item.php?it_id=1562052234&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content) ####
 
-<img src="D:\viral_git\thumb-1562052234_main_600x600.jpg" alt="세븐틴 보르도" style="zoom:67%;" /> 
+<img src="D:\viral_git\2019년 결산\thumb-1562052234_main_600x600.jpg" alt="세븐틴 보르도" style="zoom:67%;" /> 
 
 **세븐틴 보르도는 오나홀 올타임 레전드.. 축구로 치면 펠레랄까요..** 수 많은 신작이 쏟아짐에도 여전히 최고의 오나홀로 꼽히는 베스트&스테디셀러 입니다. 의외로 오나홀은 스마트폰처럼 유행주기가 짧고 제품 수명이 길지 않은 상품입니다. 한번 대히트작이 나오면 경쟁사에서 그 컨셉을 빠르게 차용해 보완한 제품이 쏟아지고 원조 제작사 조차도 빠르게 후속 시리즈를 출시하니 히트작의 생명주기가 짧을 수 밖에요. 이런 시장 생태계에서 보르도가 계속 사랑받는 이유는 제 개인적 견해로, **'리얼함'** 입니다.  
 
