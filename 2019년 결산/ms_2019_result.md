@@ -52,7 +52,7 @@
 
 
 
-#### 2위. 세븐틴 보르도 [보기](https://msdepart.com/shop/item.php?it_id=1562052234&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content) ####
+#### 2위. 세븐틴 보르도 [보기](https://msdepart.com/shop/item.php?it_id=1562052234&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content){: target="_blank"} ####
 
 <img src=".\thumb-1562052234_main_600x600.jpg" alt="세븐틴 보르도" width="55%" /> 
 
