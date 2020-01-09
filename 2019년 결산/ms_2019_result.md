@@ -4,22 +4,21 @@
 
 **이전글**
 
-- [오나홀 입문서 - 크기로 오나홀 고르기(1)](https://www.avdbs.com/board/96947)
-- [오나홀 입문서 - 크기로 오나홀 고르기(2)](https://www.avdbs.com/board/97607)
+- [(필독)(장문)오나홀 고르는 법](https://www.ygosu.com/community/?bid=adult_free&idx=9258)
+- [2018년 오나홀 베스트5](https://www.ygosu.com/community/?bid=adult_free&idx=9216)
 
 
 
-안녕하십니까 오랜만 이네유..아실랑가 모르겠지만 자게에 오나홀 글을 연신 싸대던 오나홀 빌런 엠즈 입니다. 
-작년 나름 의욕적으로 오나홀 글을 연재 해오다 소재고갈 및 여러이유로 멈췄다가 해를 넘겨버렸네요.. 그래도 한해가 지났는데 한해 마무리를 해봐야 겠디요?
+와이고수 은꼴사에선 평균 조회수 1만5천건의 생활형 은꼴을 연재하고 성유게엔 오나홀 정보글을 올리던 휴지끈길이 입니다.. 왈왈왈왈! 소재 고갈로 알아서 사라진 뒤 써볼 소재가 생겨서 다시 싸질러 봅니다 왈왈왈!
 
-그럼, 제가 선정한 오나홀 순위와 유명 오나홀 매채에서 선정한 순위로 19년 어떤 오나홀이 핫했는지 알아봅시다 왈왈왈왈!!! 추가로 휴지끈 짧은 저지만 ..저의 PICK도 조심 스럽게... 알아봅시다 
+한 해가 지나면 영화, 음악 등 한 해 결산을 내리잖습니까? 1등도 정하고요 오나홀도 역시 몇몇 매체에서 한 해 결산을 합니다. 그럼 잡소리는 그만하고! **오나홀 매채에서 선정한 순위로 19년 어떤 오나홀이 핫했는지 알아봅시다 왈왈왈왈!!! 추가로 휴지끈 짧은 저지만 ..저의 PICK도 조심 스럽게... 알아봅시다.** 
 
 ## <엠즈 2019 연간차트> ##
 
 엠즈는 아키하바라의 **에로 타워**로 유명한 일본 최대 성인용품 리테일 업체 입니다. 참고로 '에로 타워'는 한국으로 치면 명동 네이쳐리퍼블릭과 매우 흡사합니다.. 번화가 랜드마크로 항상 사람이 많은데 전부 외국인만 있는..
 >**일본에서 한국인이 그리우면 에로타워로 가라**
 
-는 (제가 만든) 말이 있을 정도로 특히나 한국인이 많은 핫플레이스죠..정작 내국인들은 외국인 등쌀에 밀려 잘 안간다고 하니 명동과 존똒 아니겠습니까 껋껋
+는 (제가 만든) 말이 있을 정도로 특히나 한국인이 많은 핫플레이스죠..정작 내국인들은 외국인 등쌀에 밀려 잘 안간다고 하니 명동과 존똒 아니겠습니까 꺓꺓
 
 <img src="./tower.jpg" alt="엠즈의 에로타워" title="엠즈의 에로타워" width="35%" /> 
 
@@ -41,13 +40,13 @@
 
 
 
-#### 1위. 텐가 딥 스로트 컵 [보기](https://msdepart.com/shop/item.php?it_id=1546268459&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content) ####
+#### 1위. 텐가 딥 스로트 컵 [보기](https://msdepart.com/shop/item.php?it_id=1546268459&bypass=on&utm_source=ygosu&utm_medium=referral&utm_campaign=viral+content) ####
 
 <img src=".\thumb-1US_1_600x600.jpg" alt="딥스로트 이미지" title="텐가 딥 스로트 컵" width="45%"/> 
 
 길게 말할 필요가 없는 제품입니다. 텐가하면 떠오르는 대표상품 인데다가 가격도 저렴하니 항상 판매순위에서 빠지지 않는 제품이죠. **사용시 느낌은 '입으로 빨아주는' 자극과 흡사합니다.** 업계식으로 '진공감' 이니 '흡입자극'이니 하는 표현이 바로 이 입으로 빠는 느낌을 말합니다. **이 제품의 그 쪽쪽 빨아주는 듯한 흡입자극은 훨씬 고가의 상위제품과 비교해도 전혀 달리지 않습니다. 다만, 1회용 제품이니 가성비가 좋다고는 하기 어렵죠. **내부 설계도 딱 1회용에 맞춰서 제작되었고, 위생, 윤리, 법도상 여러번 쓰겠다고 주접을 안떠는게 좋습니다. 
 
-이 제품은 주로 텐가 제품을 입문하는 분들에게 일종의 테스터로 많이 권합니다.  **이 제품의 자극이 취향에 맞다면 50회 이상 재사용이 가능한 ['플립제로'](https://msdepart.com/shop/item.php?it_id=1546268545&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content)같은 텐가 고급기종도 취향에 맞을 확률이 높기 떄문이죠.** 오나홀은 써보기 전까진 본인 성향에 맞는지 파악이 어렵고, 한번 사용하면 환불이나 중고거래가 어려운걸 생각해볼 때, 이 제품으로 텐가 테스팅을 해보는건 상당히 합리적입니다.
+이 제품은 주로 텐가 제품을 입문하는 분들에게 일종의 테스터로 많이 권합니다.  **이 제품의 자극이 취향에 맞다면 50회 이상 재사용이 가능한 ['플립제로'](https://msdepart.com/shop/item.php?it_id=1546268545&bypass=on&utm_source=ygosu&utm_medium=referral&utm_campaign=viral+content)같은 텐가 고급기종도 취향에 맞을 확률이 높기 떄문이죠.** 오나홀은 써보기 전까진 본인 성향에 맞는지 파악이 어렵고, 한번 사용하면 환불이나 중고거래가 어려운걸 생각해볼 때, 이 제품으로 텐가 테스팅을 해보는건 상당히 합리적입니다.
 
 추가로 의외로 선물하기에도 나쁘지 않은 아이템 입니다. 약간 키치한 이미지가 씌워져 있어서 그런듯... 그래서 선물이나 선물하기 좋은 콜라보, 기념 에디션이 많이 나오는 제품입니다. **이번 설에 가족들에게 선물해보세요.** 근본 넘치는 명절이 될 것 같네요.
 
@@ -59,7 +58,7 @@
 
 
 
-#### 2위. 세븐틴 보르도 [보기](https://msdepart.com/shop/item.php?it_id=1562052234&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content) ####
+#### 2위. 세븐틴 보르도 [보기](https://msdepart.com/shop/item.php?it_id=1562052234&bypass=on&utm_source=ygosu&utm_medium=referral&utm_campaign=viral+content) ####
 
 <img src=".\thumb-1562052234_main_600x600.jpg" alt="세븐틴 보르도" width="55%" /> 
 
@@ -71,7 +70,7 @@
 
 
 
-#### 3위. A10 사이클론 플러스 [보기](https://msdepart.com/shop/item.php?it_id=1578032631&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content) ####
+#### 3위. A10 사이클론 플러스 [보기](https://msdepart.com/shop/item.php?it_id=1578032631&bypass=on&utm_source=ygosu&utm_medium=referral&utm_campaign=viral+content) ####
 
 <img src=".\08071629_5b694a5f49290.jpg" alt="A10 사이클론 플러스" title="A10 사이클론 플러스" width="45%" /> 
 
@@ -81,11 +80,11 @@
 
  그 외 A10 사이클론만의 특장점은 사실... 딱히.. 굳이 생각해보자면 **'정숙함'** 정도? 이런 전동 오나홀중에는 모터음이 상당해서 '저 지금 자위 중입니다' 라고 강제 수치플레이를 시켜주는 제품이 꽤 많고.. 그 중에서  '오 마이 스카이'란 놈은 내부 스피커로 신음소리를 내기도 했죠 ㅎㅎ 반면, A10 사이클론은 거의 아무소리가 안날정도로 정숙합니다.
 
-덧붙여서, 남성 전동기구중에서 제일 잘 나가는건 역시나 '텐가 플립제로 EV' 인데 이미 플립제로를 사용하신 분들이 더 강한 자극을 위해서 EV를 구입하신다면 그다지 좋은 선택이 아닙니다. EV의 전동기능은 드르르 떨리는 '진동'인데 이 것이 자극에 큰 이점을 주지 않습니다. **더 강한 자극을 원하시면 자동으로 피스톤을 하는 [피스톤 히트IR](https://msdepart.com/shop/item.php?it_id=1546268944&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content)이나, A10 사이클론 처럼 좌우로 회전을 하는 제품이 훨 낫습니다.** 플립제로 써보고 만족해서 더 빡세게 하려고 EV도 샀는데 돈날렸다는 분들이 많아서 적어봄..
+덧붙여서, 남성 전동기구중에서 제일 잘 나가는건 역시나 '텐가 플립제로 EV' 인데 이미 플립제로를 사용하신 분들이 더 강한 자극을 위해서 EV를 구입하신다면 그다지 좋은 선택이 아닙니다. EV의 전동기능은 드르르 떨리는 '진동'인데 이 것이 자극에 큰 이점을 주지 않습니다. **더 강한 자극을 원하시면 자동으로 피스톤을 하는 [피스톤 히트IR](https://msdepart.com/shop/item.php?it_id=1546268944&bypass=on&utm_source=ygosu&utm_medium=referral&utm_campaign=viral+content)이나, A10 사이클론 처럼 좌우로 회전을 하는 제품이 훨 낫습니다.** 플립제로 써보고 만족해서 더 빡세게 하려고 EV도 샀는데 돈날렸다는 분들이 많아서 적어봄..
 
 
 
-#### 4위. 버진 루프 [보기](https://msdepart.com/shop/item.php?it_id=1554441440&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content) ####
+#### 4위. 버진 루프 [보기](https://msdepart.com/shop/item.php?it_id=1554441440&bypass=on&utm_source=ygosu&utm_medium=referral&utm_campaign=viral+content) ####
 
 <img src=".\thumb-1554441440_01_600x600.jpg" alt="버진 루프 이미지" title="버진 루프 이미지" width="55%" /> 
 
@@ -116,19 +115,19 @@
 
 
 
-#### 1위. 온천욕정 [보기](https://msdepart.com/shop/item.php?it_id=1577322701&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content)  ####
+#### 1위. 온천욕정 [보기](https://msdepart.com/shop/item.php?it_id=1577322701&bypass=on&utm_source=ygosu&utm_medium=referral&utm_campaign=viral+content)  ####
 
 <img src=".\thumb-1576489610_00_600x600.jpg" alt="온천욕정 이미지" title="온천욕정 이미지" width="55%" /> 
 
 
 
-위에서 언급한대로 **이미 너무 유명해서 제외된 [흡입주의 마녀의 유혹](https://msdepart.com/shop/item.php?it_id=1571969204&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content)의 소프트버전으로 요약이 가능한 제품입니다.** 내가 마녀의 유혹을 써보고 충분히 만족했다 싶으면 구매를 강력 추천드리며, 마녀의 유혹 또는 그 이상의 고자극 홀로도 자극의 강도가 만족 스럽지 않다고 하면 심심할 제품입니다. **마녀의 유혹이 큰 호평을 받은 부분이 고자극 이면서 너무 인위적이거나, 정액을 강제로 짜내는 느낌 없이 기분좋게 자극한다는 점 이었는데, 온천욕정은 여기서 자극 강도를 살짝 낮추고 리얼함과 기분좋은 느낌을 좀 더 강화했습니다.**
+위에서 언급한대로 **이미 너무 유명해서 제외된 [흡입주의 마녀의 유혹](https://msdepart.com/shop/item.php?it_id=1571969204&bypass=on&utm_source=ygosu&utm_medium=referral&utm_campaign=viral+content)의 소프트버전으로 요약이 가능한 제품입니다.** 내가 마녀의 유혹을 써보고 충분히 만족했다 싶으면 구매를 강력 추천드리며, 마녀의 유혹 또는 그 이상의 고자극 홀로도 자극의 강도가 만족 스럽지 않다고 하면 심심할 제품입니다. **마녀의 유혹이 큰 호평을 받은 부분이 고자극 이면서 너무 인위적이거나, 정액을 강제로 짜내는 느낌 없이 기분좋게 자극한다는 점 이었는데, 온천욕정은 여기서 자극 강도를 살짝 낮추고 리얼함과 기분좋은 느낌을 좀 더 강화했습니다.**
 
 그리고 저는 아닌데, 쓰다 보면 내부 구조가 단순해서 금세 질린다는 분들도 있습니다.  애초에 온천욕정의 제작사인 토이즈하트가 고집스러울 정도로 기본에 충실한 제품만 만드는 제작사여서 특이한 느낌? 변화무쌍한 자극을 기대하기 어렵습니다. 그런 이유로 근래 독특한 컨셉의 제품이 득세하면서 토이즈하트의 신작이 모두 죽을써왔죠. 온천욕정은 그러한 긴 부진을 끊고 간만에 터진 토이즈하트의 대형 히트작 입니다. 성공의 이유야 여러가지겠지만.. 역시나 가장 큰 이유는 검증된 마녀의 유혹에 적절한 변화를 준게 가장 주요하지 않았나 저는 생각해보홉니히다하.
 
 
 
-#### 2위. 니쿠망 [보기](https://msdepart.com/shop/item.php?it_id=1577322284&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content) ####
+#### 2위. 니쿠망 [보기](https://msdepart.com/shop/item.php?it_id=1577322284&bypass=on&utm_source=ygosu&utm_medium=referral&utm_campaign=viral+content) ####
 
 <img src=".\thumb-UGPR039_b_600x600.jpg" alt="니쿠망" title="니쿠망" width="55%" /> 
 
@@ -150,7 +149,7 @@
 
 
 
-#### 3위. 그란 슬라이드 [보기](https://msdepart.com/shop/item.php?it_id=1554459137&bypass=on&utm_source=avdbs&utm_medium=referral&utm_campaign=viral+content) ####
+#### 3위. 그란 슬라이드 [보기](https://msdepart.com/shop/item.php?it_id=1554459137&bypass=on&utm_source=ygosu&utm_medium=referral&utm_campaign=viral+content) ####
 
 <img src=".\thumb-TOY9901569_b_600x600.jpg" alt="그란 슬라이드 이미지" title="그란 슬라이드" width="55%" /> 
 
